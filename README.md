@@ -6,7 +6,7 @@
 
 <div align="center">
 
-i rmk soon
+korean , filipino , mexican
 
 
 
